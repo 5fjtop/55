@@ -3,4 +3,5 @@
 【内容】
 1.修复不能在线检测更新
 【内容】
-【链接】https://wwb.lanzouj.com/irxRSzo6ydc(链接使用自己的链接)【链接】
+【链接】https://wwb.lanzouj.com/irxRSzo6ydc
+【链接】
